@@ -31,7 +31,7 @@ It's an election year and the Democrats are taking full advantage of America's c
 
 ## Oh brother, where art thou?
 
-Oh where to start... How about an old, drawn-out tyrannical nightmare to set the mood.
+Where to start?... How about an old, drawn-out tyrannical nightmare to set the mood.
 
 Most people are aware of George Orwell's book, _1984_. In this dystopian society, the remnants of a destablized nation are displayed in full effect. The revolution was "won" and have now fully adopted communism.
 Slogans of "The Party" are inscribed in massive letters on the white pyramid of the Ministry of Truth.
@@ -99,7 +99,7 @@ If you believe this lie of D.I.E., you are a sheep who needs to be told what to 
 
 According to Bezmenov, this process can take 15 to 30 years which is the range of a generation. The young are lured into marxism. The older generation dies and what do you know? You suddenly have less capitalists and more marxists. According to a [2006 survey](http://citeseerx.ist.psu.edu/viewdoc/download?doi=10.1.1.147.6141&rep=rep1&type=pdf), "social science" fields contain the most self-identified marxists at 25.5 percent.
 
-Replace labor rights from the communist manifesto with any other victim class that the social justice warriors elevate like gays, trans, or blacks and you've got social justice. Social justice is just communism in a funny hat. A fabulous hat.
+Replace labor rights from the communist manifesto with any other victim class that the social justice warriors elevate like gays, trans, or blacks and you've got social justice. Social justice is just marxism in a funny hat. A fabulous hat.
 
 Social justice is pounded into the soft heads of the younger generation by these marxists until they become puppets. I like to call this stage "brain smoothing" and those people afflicted with this illness are "smooth brains."
 These idealogical arguments are used to pit the oppressor against the oppressed and inevitably result in violence _see destabilization stage_. You can't build a house on shifting sand. You can't form a stabilized society
@@ -117,6 +117,13 @@ The aim is to destabilize a nation such that no conservation could be had withou
 The weak minded can be manipulated into thinking anyone who doesn't spew social justice garbage from their mouth, or worse, contradicts the religion must be destroyed. The logical fallacies can convince the sheep
 that a small jewish man from California is a nazi or a conservative black woman is a white supremacist.
 
+BLM activists surround restaurant patrons in D.C., screaming "white silence is violence," mobbing them to put their hand up like some kind of brown-shirt hate mob. The woman remains strong, not subjugating herself to the hate mob. Even if
+you agree with the core stances of the hate mob, you cannot let yourself be controlled. You cannot let yourself become a puppet. This footage has been cropping up on other country's new channels
+and has been swiftly memory-holed by U.S. media. I had to pull this from an Australian new source.
+
+![](/img/blm_brownshirts.jpeg)
+
+
 > The press is our chief ideological weapon.
 \- Nikita Khrushchev
 
@@ -128,6 +135,8 @@ The Democrats will use these destabilizing factors to their advantage and blame 
 people younger than 70, yet the Democrats have shutdown their cities and blame the instability on the President anyway. It's one of the many examples of retardation of the country why
 anyone would buy the narrative that dealing with a global pandemic is alone, the President's fault. It just shows either a lack of understanding of a republic and separation of powers or willful ignorance for
 political gain.
+
+To placate the smooth-brains, democrats have agreed to "defund the police." Do you think this will increase stability, or decrease it?
 
 Pelosi isn't afraid of using these destabilizing tactics for political reasons. Pictured below, she is visiting Chinatown in SF amid the early signs of the coronavirus pandemic at the beginning of 2020. Instead of
 supporting Trump's travel ban to/from China, she tried to spin this as a racial issue and Trump is discriminating against Chinese Americans. While Trump was being impeached for something no one
@@ -163,7 +172,7 @@ This stage takes about 20 years according to Bezmenov. The revolutionaries will 
 
 ## The Inevitable
 
-We're moving towards a world where if you are white, you cannot have an interaction with a person of another color without it being racist. See White Fragility - Robin De'Angelo.
+We're moving towards a world where if you are white, you cannot have an interaction with a person of another color without it being racist. See White Fragility - Robin DiAngelo.
 
 [California voted 58-9](https://www.sfchronicle.com/politics/article/California-bill-asking-voters-whether-to-repeal-15331604.php) to undo Martin Luther King Jr's work of making it illegal to hire based on race or gender.
 They claim it supresses hiring of women and people of color.
@@ -180,15 +189,19 @@ To conclude, the Soviet Union may have stirred the pot during the Cold War, but 
 It has consumed our universities, media, and politics. This narrative is even being tested by massive corporations. The hivemind is shifting towards this narrative of everything and
 everyone being racist or offensive to the oppressed. These ideas have put people into an identitarian gutter that it's impossible to have a conversation.
 
+Like the old empires, Rome, Greece, Sumer, maybe America's time in the sun is up. The beacon of hope of a unified nation that can seemingly perform miracles is slowly erroding.
+The U.S. is in an identity crisis and we need to figure it out and move forward, but we've been cut at the knees. Can the U.S. repair herself before it's too late?
+
 America was founded on principled ideas that came out of the enlightenment. The founders had a plan of action and were willing to risk it all when they rebelled against England.
 The ideas espoused by the D.I.E. agenda are designed to be divisive and were never meant as a unifying banner. What is the Left's unifying banner? Once America is burned to the ground,
 what's the plan? What does the normalization process look like? Are we willing to gamble it all on a fuzzy idea of a utopia?
 
-Like the old empires, Rome, Greece, Sumer, maybe America's time in the sun is up. The beacon of hope of a unified nation that can seemingly perform miracles is slowly erroding.
-The U.S. is in an identity crisis and we need to figure it out and move forward, but we've been cut at the knees. Can the U.S. repair herself before it's too late?
+Dr. Martin Luther King Jr. expanded upon the ideals of the founders. He took this ideas from the founders and showed that America wasn't living up to its own ideals and opened a portal into what a greater America looks like.
+
+The Left has a point to make, but it is not fully realized. All is not right under our house, but we must dust off the old documents of the founders and revitalize them, not destroy them.
 
 Bezmenov lived to see the fall of the Soviet Union, but not America. Hopefully his prophetic vision is never fully realized
-and America comes out on top stronger than ever.  
+and America comes out on top stronger and revitalized.
 
 
 
