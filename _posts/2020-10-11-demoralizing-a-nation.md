@@ -26,8 +26,36 @@ He claims these tactics were massively successful in terms of demoralization as 
 </p>
 
 Not only is America well beyond the demoralization stage, it's in the middle of the crisis stage. Civil war is here and like many during Covid shutdowns, the soldiers are working from home.
+It's an election year and the Democrats are taking full advantage of America's current state of destabilization and it will cost them dearly.
 
-## Foundation on a swamp
+
+## Oh brother, where art thou?
+
+Oh where to start... How about an old, drawn-out tyrannical nightmare to set the mood.
+
+Most people are aware of George Orwell's book, _1984_. In this dystopian society, the remnants of a destablized nation are displayed in full effect. The revolution was "won" and have now fully adopted communism.
+Slogans of "The Party" are inscribed in massive letters on the white pyramid of the Ministry of Truth.
+
+<p align="center">
+WAR IS PEACE
+</p>
+<p align="center">
+FREEDOM IS SLAVERY
+</p>
+<p align="center">
+IGNORANCE IS STRENGTH
+</p>
+
+First of all, it's obvious to the reader that these statements are paradoxes and you can point out the irony from a mile away of these paradoxes on top of _the Ministry of Truth_.
+These statements are designed to cause cognitive dissonance. Once a citizen of Oceania is pushed to believing these moral fallacies, you can make them do anything. They are simply
+a puppet of the state.
+
+If someone can make you say something that you don't believe, you are weak and become weaker.
+
+These are the demoralizing, foundational statements that transformed the citizens of Oceania into slaves that "truly love big brother." But surely this work of fiction will never be manifested in a nation such as the
+United States of America, the greatest nation on earth... right?
+
+## Foundation on a Swamp
 
 The Soviet Union is dead, but its ghost is still haunting the United States.  It doesn't matter that communism has failed disastrously over and over in the 20th century. The battering ram to bring about the revolution are the following:
 
@@ -45,10 +73,10 @@ Is the paradox clear? If you consume western media without thought, it isn't. If
 
 If everyone is equal, why does it matter to have diversity? And if that doesn't matter, why would there be any need for inclusion?
 
-Equity, the cornerstone of this death sentence is a fallacy. No one is born equal in this universe. If that were true, we'd have seen Rosie O'donnel dunking on Shaq in the 90's. Some are born short, some tall, smart, some
-absolutely stupid... oh we have plenty of mouth breathing dummies that plague this realm. Equality of opportunity is a fair and moral principle, meaning one has a chance to prove their merit through their actions. Muggsy bogues is a 5'3 man who played in the NBA and was massively successful.
+Equity, the cornerstone of this death sentence, is a fallacy. No one is born equal in this universe. If that were true, we'd have seen Rosie O'donnel dunking on Shaq in the 90's. Some are born short, some tall, smart, some
+absolutely stupid... oh we have plenty of mouth breathing dummies that plague this realm.
 
-But that's not what equity means, it means **equality of _outcomes_**.
+Equality of opportunity is a fair and moral principle, meaning one has a chance to prove their merit through their actions. Muggsy Bogues is a 5'3 man who played in the NBA and was massively successful. But that's not what equity means, it means **equality of _outcomes_**.
 
 That's right! The left will not deny this either. They embrace this impossible to hold in your mind statement and roll with it.
 [Canadian Prime Minister Trudeau appointed his cabinent based on gender parity](https://www.cbc.ca/news/politics/trudeau-liberal-minority-government-2019-1.5331926), 50/50 male female ratio even though females are the minority in all elected seats in the House of Commons and all provincial and territorial legislative chambers. And he did it twice! Once in 2015, "because it's 2015," and another in 2019. Just by the math, the Canadian prime minister
@@ -65,7 +93,7 @@ disagrees with their identity and they are automatically a bigot that you can ju
 
 If you believe this lie of D.I.E., you are a sheep who needs to be told what to think, how to think, when to think. VOTE BLUE NO MATTER WHO, PEASANT!
 
-## The 4 stages
+## The 4 Stages
 
 ### Stage 1: Demoralization
 
@@ -120,7 +148,7 @@ Civil war or invasion. This is where the violent takeover of power occurs. There
 The Russia collusion hoax and the Ukranian call hoax (which he was impeached over, but no one seems to remember.) Will we see an assassination attempt? There
 have been attempts, but they seemed to have been lone-wolf attempts on his 2016 campaign trail.
 
-Antifa attack the elderly trying to defend the Portland Police Precinct from fires
+Antifa attack the elderly trying to defend the Portland Police Precinct.
 ![](/img/ppb-rioters-attack-elderly.jpg)
 
 Luckily, the energy behind these protests are not fully realized. I suspect most are acting in protests for narcissistic reasons combined with the coronavirus shutdowns in democrat cities.
@@ -131,9 +159,9 @@ Luckily, the energy behind these protests are not fully realized. I suspect most
 
 > The revolution is won comrade, now kindly die.  Thanks 😘
 
-This stage takes about 20 years according to Bezmenov. The revolutionaries will be cast aside, imprisoned, or killed. Attempts will be made to stabilize the nation, the military will need to be involved. See the 1975 Lebanon revolution. The U.S. had to get involved to setting things down with the military after Soviet subversion.
+This stage takes about 20 years according to Bezmenov. The revolutionaries will be cast aside, imprisoned, or killed. Attempts will be made to stabilize the nation, the military will need to be involved. See the 1975 Lebanon revolution. The U.S. had to get involved to settle things down with the military after Soviet subversion.
 
-## The inevitable
+## The Inevitable
 
 We're moving towards a world where if you are white, you cannot have an interaction with a person of another color without it being racist. See White Fragility - Robin De'Angelo.
 
@@ -142,29 +170,26 @@ They claim it supresses hiring of women and people of color.
 
 [Black Families buy 97 acres of land in Georgia to create black-only 'safe space' town called Freedom.](https://www.dailymail.co.uk/news/article-8727233/Black-families-buy-97-land-Georgia-build-town-whites-not-encouraged-move.html)
 
+These divisive ideas are cancerous and they are moving the country towards something the far right would love to see.
 
 ![](/img/separate_space_flag.png)
 
-## Oh brother, where art thou?
+## Conclusion
 
-Most people are aware of George Orwell's book, _1984_. In this dystopian society, the remnants of a destablized nation are displayed in full effect. The revolution was "won" and have now fully adopted communism.
-Slogans of "The Party" are inscribed in massive letters on the white pyramid of the Ministry of Truth.
+To conclude, the Soviet Union may have stirred the pot during the Cold War, but it is Americans who are pushing the agenda of a fractured racial/gender based identity nation.
+It has consumed our universities, media, and politics. This narrative is even being tested by massive corporations. The hivemind is shifting towards this narrative of everything and
+everyone being racist or offensive to the oppressed. These ideas have put people into an identitarian gutter that it's impossible to have a conversation.
 
-<p align="center">
-WAR IS PEACE
-</p>
-<p align="center">
-FREEDOM IS SLAVERY
-</p>
-<p align="center">
-IGNORANCE IS STRENGTH
-</p>
+America was founded on principled ideas that came out of the enlightenment. The founders had a plan of action and were willing to risk it all when they rebelled against England.
+The ideas espoused by the D.I.E. agenda are designed to be divisive and were never meant as a unifying banner. What is the Left's unifying banner? Once America is burned to the ground,
+what's the plan? What does the normalization process look like? Are we willing to gamble it all on a fuzzy idea of a utopia?
 
-First of all, it's obvious to the reader that these statements are paradoxes and you can point out the irony from a mile away of these paradoxes on top of _the Ministry of Truth_.
-These statements are designed to cause cognitive dissonance. Once a citizen of Oceania is pushed to believing these moral fallacies, you can make them do anything. They are simply
-a puppet of the state.
+Like the old empires, Rome, Greece, Sumer, maybe America's time in the sun is up. The beacon of hope of a unified nation that can seemingly perform miracles is slowly erroding.
+The U.S. is in an identity crisis and we need to figure it out and move forward, but we've been cut at the knees. Can the U.S. repair herself before it's too late?
 
-If someone can make you say something that you don't believe, you are weak and become weaker.
+Bezmenov lived to see the fall of the Soviet Union, but not America. Hopefully his prophetic vision is never fully realized
+and America comes out on top stronger than ever.  
 
-These are the demoralizing statements that lead the citizens of 1984 into slaves that "truly love big brother."
+
+
 
