@@ -119,7 +119,7 @@ that a small jewish man from California is a nazi or a conservative black woman 
 
 BLM activists surround restaurant patrons in D.C., screaming "white silence is violence," mobbing them to put their hand up like some kind of brown-shirt hate mob. The woman remains strong, not subjugating herself to the hate mob. Even if
 you agree with the core stances of the hate mob, you cannot let yourself be controlled. You cannot let yourself become a puppet. This footage has been cropping up on other country's new channels
-and has been swiftly memory-holed by U.S. media. I had to pull this from an Australian new source.
+and has been swiftly memory-holed by U.S. media. I had to pull this from an Australian news source.
 
 ![](/img/blm_brownshirts.jpeg)
 
