@@ -73,7 +73,7 @@ Is the paradox clear? If you consume western media without thought, it isn't. If
 
 If everyone is equal, why does it matter to have diversity? And if that doesn't matter, why would there be any need for inclusion?
 
-Equity, the cornerstone of this death sentence, is a fallacy. No one is born equal in this universe. If that were true, we'd have seen Rosie O'donnel dunking on Shaq in the 90's. Some are born short, some tall, smart, some
+Equity, the cornerstone of this death sentence, is a fallacy. No one is born equal in this universe. If that were true, we'd have seen Rosie O'Donnell dunking on Shaq in the 90's. Some are born short, some tall, smart, some
 absolutely stupid... oh we have plenty of mouth breathing dummies that plague this realm.
 
 Equality of opportunity is a fair and moral principle, meaning one has a chance to prove their merit through their actions. Muggsy Bogues is a 5'3 man who played in the NBA and was massively successful. But that's not what equity means, it means **equality of _outcomes_**.
