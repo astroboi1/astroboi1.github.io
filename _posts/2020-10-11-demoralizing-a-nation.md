@@ -196,7 +196,7 @@ America was founded on principled ideas that came out of the enlightenment. The 
 The ideas espoused by the D.I.E. agenda are designed to be divisive and were never meant as a unifying banner. What is the Left's unifying banner? Once America is burned to the ground,
 what's the plan? What does the normalization process look like? Are we willing to gamble it all on a fuzzy idea of a utopia?
 
-Dr. Martin Luther King Jr. expanded upon the ideals of the founders. He took this ideas from the founders and showed that America wasn't living up to its own ideals and opened a portal into what a greater America looks like.
+Dr. Martin Luther King Jr. expanded upon the ideals of America. He took these ideas from the founders and showed that America wasn't all that it could be and opened a portal into what a greater America looks like.
 
 The Left has a point to make, but it is not fully realized. All is not right under our house, but we must dust off the old documents of the founders and revitalize them, not destroy them.
 
