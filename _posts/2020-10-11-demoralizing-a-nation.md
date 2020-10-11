@@ -80,7 +80,7 @@ Equality of opportunity is a fair and moral principle, meaning one has a chance 
 
 That's right! The left will not deny this either. They embrace this impossible to hold in your mind statement and roll with it.
 [Canadian Prime Minister Trudeau appointed his cabinent based on gender parity](https://www.cbc.ca/news/politics/trudeau-liberal-minority-government-2019-1.5331926), 50/50 male female ratio even though females are the minority in all elected seats in the House of Commons and all provincial and territorial legislative chambers. And he did it twice! Once in 2015, "because it's 2015," and another in 2019. Just by the math, the Canadian prime minister
-sacrificed competetance in the name of social justice. Unless... females are disproportionately just _better_ bureaucrats? But that would contradict equality, would it not?
+sacrificed competence in the name of social justice. Unless... females are disproportionately just _better_ bureaucrats? But that would contradict equality, would it not?
 
 Following this logic of equal outcomes, it's only natural that you should be treated the same as a criminal, correct? Over the last few years, [Democrats have been arguing for _felons_ to vote](https://apnews.com/article/66cc1a8de27e460096b8147aec0a2dcb). In this topsy turvy world, the Boston Marathon bomber would be able to vote equally among the rule abiding, productive members of society. Luckily, these ideas have
 been largely unsuccessful because not everyone is completely brain-smoothed yet.
