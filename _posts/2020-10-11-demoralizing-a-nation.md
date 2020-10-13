@@ -160,9 +160,17 @@ have been attempts, but they seemed to have been lone-wolf attempts on his 2016 
 Antifa attack the elderly trying to defend the Portland Police Precinct.
 ![](/img/ppb-rioters-attack-elderly.jpg)
 
+Statue of George Washington torn down in Portland, Oregon.
+![](/img/portland_gwash_statue.jpg)
+
 Luckily, the energy behind these protests are not fully realized. I suspect most are acting in protests for narcissistic reasons combined with the coronavirus shutdowns in democrat cities.
+
 ![](/img/portland_protest1.jpeg)
 ![](/img/portland_protest2.jpeg)
+
+But, again, the sheep will bend to the destabilization and go against the basic principles of humanity and kill in the name of an atrocious ideology.
+
+![](/img/david_dorn.jpg)
 
 ### Stage 4: Normalization
 
@@ -198,7 +206,7 @@ what's the plan? What does the normalization process look like? Are we willing t
 
 Dr. Martin Luther King Jr. expanded upon the ideals of America. He took these ideas from the founders and showed that America wasn't all that it could be and opened a portal into what a greater America looks like.
 
-The Left has a point to make, but it is not fully realized. All is not right under our house, but we must dust off the old documents of the founders and revitalize them, not destroy them.
+The Left has a point to make, but it is not fully realized and a lot of their dogma is filled with corruption. You get exactly what you ask for, but it doesn't mean you get what you want. We can admit, not _all_ is not right under our house, but we must dust off the old documents of the founders and revitalize them, not destroy them. 
 
 Bezmenov lived to see the fall of the Soviet Union, but not America. Hopefully his prophetic vision is never fully realized
 and America comes out on top stronger and revitalized.
